@@ -1,2 +1,0 @@
-# PARA-ELI
-TE AMO MI VIDA
